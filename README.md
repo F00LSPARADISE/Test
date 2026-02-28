@@ -11,4 +11,4 @@ Interests: Gorillaz, FNAF (Games + Movies), Digimon, Marvel, DC, JJBA, OP, WC, A
 
 I'll likely be in the FNAF, Gorillaz, or JJBA areas if you need to find me!
 
-I don't really have a 'DNI' list except for obvious harmful weirdos (bigots, pedos, etc.), but considering the things they say and do, I highly doubt this will stop them from engaging with me, unfortunately </3. Just know that I do block and hide freely, and that if you say anything weird to me or anyone else, I will not give you the time of day! Play stupid games, win stupid prizes
+I don't really have a 'DNI' list except for obvious, harmful weirdos (bigots, pedos, etc.), but considering the things they say and do, I highly doubt this will stop them from engaging with me, unfortunately </3. Just know that I do block and hide freely, and that if you say anything weird to me or anyone else, I will not give you the time of day! Play stupid games, win stupid prizes
