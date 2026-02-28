@@ -3,7 +3,7 @@ I made this solely for Pony Town!! Not completely sure how it works but, anyway!
 
 Boundaries | Hugs? ✓✓ | Cuddles? ✓✓ | Kisses? ✓✓ | I don't mind at all!! ^_^ You can do any of these freely!
 
-As for like rp stuff, please ask! I don't tend to do serious rps (I'm rusty okay), but I am always down to joke around!! I don't tend to engage with strangers when it comes to this, but again, feel free to ask
+As for like rp stuff, please ask! I don't tend to do serious rps (I'm rusty okay), but I am always down to joke around!! I don't typically engage with strangers when it comes to this, but again, feel free to ask
 
 Any other interaction is welcome, don't be shy; I love talking and making new friends!! If you want my attention, and I'm not responding, I may be afk! Whisper and I will be more likely to answer ty!!
 
