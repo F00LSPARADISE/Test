@@ -1,5 +1,5 @@
 # ABOUT ME!
-I made this solely for Pony Town!! Not completely sure how it works but anyway!
+I made this solely for Pony Town!! Not completely sure how it works but, anyway!
 
 Boundaries | Hugs? ✓✓ | Cuddles? ✓✓ | Kisses? ✓✓ | I don't mind at all!! ^_^ You can do any of these freely!
 
